@@ -24,6 +24,4 @@ Here is just keeping random things
 >   * Pentel A811 (201X, <2013)
 >   * Paper
 
-![image](https://user-images.githubusercontent.com/94661535/194718215-23ac1c19-4ef0-40d4-a376-b640becb1150.png)
-
-IDK Why, This pic look so sad or smth. . .
+![image](https://user-images.githubusercontent.com/94661535/194742070-be9ff08f-fc55-4d8c-afb9-d5c11c0afebf.png)
